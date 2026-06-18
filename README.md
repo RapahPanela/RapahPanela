@@ -10,4 +10,4 @@ _Um pouco sobre mim:_
 
 
 
-![](https://tenor.com/pt-BR/view/drawing-anime-gif-14664890)
+![](https://media.tenor.com/LxaQ_irnwmkAAAAC/anime-anime-gif.gif)
