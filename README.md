@@ -3,4 +3,7 @@ _Um pouco sobre mim:_
 
 - 📖 Sou estudante.
 - 🎨 Gosto de desenhar(Sou artista).
-- 
+- 🏐 Gosto de vôlei
+- 🎧 Gosto de ouvir músicas, mas (não tenho um gosto específico)
+- Sou ambivertida.
+- 🏎️ Gosto ## MUITO ## de Carros (não tenho um gosto específico)
