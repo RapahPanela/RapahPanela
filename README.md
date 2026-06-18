@@ -7,3 +7,4 @@ _Um pouco sobre mim:_
 - 🎧 Gosto de ouvir músicas, mas (não tenho um gosto específico)
 - Sou ambivertida.
 - 🏎️ Gosto **MUITO** de Carros (não tenho um gosto específico)
+![](https://tenor.com/pt-BR/view/drawing-anime-gif-14664890)
