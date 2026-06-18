@@ -6,4 +6,4 @@ _Um pouco sobre mim:_
 - 🏐 Gosto de vôlei
 - 🎧 Gosto de ouvir músicas, mas (não tenho um gosto específico)
 - Sou ambivertida.
-- 🏎️ Gosto ## MUITO de Carros (não tenho um gosto específico)
+- 🏎️ Gosto **MUITO** de Carros (não tenho um gosto específico)
